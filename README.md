@@ -1,2 +1,4 @@
 # Rexix-T
-My name is Michael Mireku a pharmacist by profession with keen interests in the field of public health, specifically health economics, health systems and antibiotic resistance. I look to honing my skills in research and data analysis. 
+Michael Mireku here, a pharmacist by profession. 
+Public health is my new thing, specifically health economics, health systems and antibiotic resistance. 
+Research and data analysis skills would stand me out
